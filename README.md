@@ -4,5 +4,5 @@
 - 🌱 I’m currently learning SQL.
 - 📫 How to reach me: https://www.linkedin.com/in/aswini-male-860702260/
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: Work unitl the world watches your success.
+- ⚡ Fun fact: Work until the world watches your success.
 
